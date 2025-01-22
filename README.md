@@ -19,6 +19,7 @@
 Download **Trivia Frenzy** now and start your trivia journey today! 🚀
 
 [Play Now on the App Store!](https://apps.apple.com/ca/app/trivia-frenzy/id6720707997)  
+
 [Join our Community](https://x.com/trivia_frenzy)
 
 [Support Email]( triviafrenzyapp@gmail.com)
